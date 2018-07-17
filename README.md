@@ -1,5 +1,5 @@
 # rules
-rules for Efficiency office and be a greate man
+rules for Efficiency office and be a great man
 
 # 					ataola主题
 
